@@ -1,8 +1,12 @@
 # pull-ups
+Ultra endurance pull up project. Goggins did 4030 in 24 hours, thats less than 3/min. How hard could it be? The current world record is 
+11,707 by Oh Yohan, which is over 8/min. That sounds pretty hard. What does it take to hit 9/min?
 
 sets x reps
 
 OMEM = On the Minute Every Minute
+
+Starting body weight: ~180 lbs
 
 ## 11/6/2025
 7 pm during regular lift.
@@ -44,3 +48,4 @@ Noticable fatigue from past days, probably going to try another set today but re
 
 Feeling the fatigue on every first rep but 3 reps not hard to push through.
 Can also feel the body weight dragging down.
+
