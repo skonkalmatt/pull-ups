@@ -35,3 +35,12 @@ Much more managable, 3 - 4 reps could probably be done consitently for a much lo
 
 Alternating high and low reps made it easier but still built up fatigue by the last 5 rep set.
 Noticable fatigue from past days, probably going to try another set today but rest tomorrow.
+
+
+12:30 pm
+30 in 10 minutes OMEM
+
+3 x 10
+
+Feeling the fatigue on every first rep but 3 reps not hard to push through.
+Can also feel the body weight dragging down.
