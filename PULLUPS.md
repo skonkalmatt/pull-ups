@@ -49,3 +49,16 @@ Noticable fatigue from past days, probably going to try another set today but re
 Feeling the fatigue on every first rep but 3 reps not hard to push through.
 Can also feel the body weight dragging down.
 
+## 11/9/2025
+Rest day
+
+## 11/10/2025
+
+Part of afternoon lift
+
+100 in 30 minutes OMEM
+
+10 x 4
+20 x 3
+
+Actually felt pretty good. The reps didn't start getting jerky until set 8 and then only started getting jerky after set 25. I did start to feel some pain in my upper lats but was still able to control my reps once I decided to keep them strict.
