@@ -50,10 +50,9 @@ Feeling the fatigue on every first rep but 3 reps not hard to push through.
 Can also feel the body weight dragging down.
 
 ## 11/9/2025
-Rest day
+Rest day, lifted other muscle groups
 
 ## 11/10/2025
-
 Part of afternoon lift
 
 100 in 30 minutes OMEM
@@ -62,3 +61,15 @@ Part of afternoon lift
 20 x 3
 
 Actually felt pretty good. The reps didn't start getting jerky until set 8 and then only started getting jerky after set 25. I did start to feel some pain in my upper lats but was still able to control my reps once I decided to keep them strict.
+
+## 11/11/2025
+Active recovry muay thai
+
+## 11/12/2025
+Afternoon lift
+
+80 in 20 minutes OMEM
+
+20 x 4
+
+Started to slow down around set 13-14. Felt some pain in right elbow until forearms warmed up and adjusted grip. Switching between wide and narrow grip help keep up pace after slowing down.
