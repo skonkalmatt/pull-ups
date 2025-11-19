@@ -57,8 +57,8 @@ Part of afternoon lift
 
 100 in 30 minutes OMEM
 
-10 x 4
-20 x 3
+4 x 10
+3 x 20
 
 Actually felt pretty good. The reps didn't start getting jerky until set 8 and then only started getting jerky after set 25. I did start to feel some pain in my upper lats but was still able to control my reps once I decided to keep them strict.
 
@@ -70,6 +70,36 @@ Afternoon lift
 
 80 in 20 minutes OMEM
 
-20 x 4
+4 x 20
 
 Started to slow down around set 13-14. Felt some pain in right elbow until forearms warmed up and adjusted grip. Switching between wide and narrow grip help keep up pace after slowing down.
+
+## 11/13
+Travel day.
+
+## 11/14
+After noon lift
+
+60 in 10 minutes OMEM
+
+6 x 10
+
+Got really ugly at 7th set. Barely finished the last couple reps of the final set.
+
+## 11/15
+Lift backoff lift
+
+20 in 10 minutes OMEM
+
+2 x 10
+
+Very easy. No issues. Going to work on dropping weight now though this is hard at this body weight.
+
+## 11/16
+Sick + Traveling
+
+## 11/17
+Sick
+
+## 11/18
+Sick. Atleast my muscles will be recovered for when im back in the gym.
