@@ -103,3 +103,21 @@ Sick
 
 ## 11/18
 Sick. Atleast my muscles will be recovered for when im back in the gym.
+
+## 11/19 
+Afternoon lift
+
+30 in 10 minutes OMEM
+
+3 x 10
+
+Very easy. Feeling pain in inside right elbow until warmed up.
+
+## 11/21
+Afternoon lift
+
+40 in 10 minutes OMEM
+
+4 x 10
+
+Again very easy, but felt pain in right elbow until warmed up.
