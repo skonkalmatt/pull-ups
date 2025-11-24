@@ -121,3 +121,22 @@ Afternoon lift
 4 x 10
 
 Again very easy, but felt pain in right elbow until warmed up.
+
+## 11/22
+Afternoon lift
+
+90 in 30 minutes OMEM
+
+3 x 30
+
+Cruised through 20, started to only slow down mid 20s. Was originally going to do 25 min but was feeling good.
+
+## 11/23
+Morning lift
+
+50 in 15 minutse OMEM
+
+3 x 10
+4 x 5
+
+Used a stiff and straight bar, grip was much better and reduced fatigue. Using a wider grip was easier on the wrists.
