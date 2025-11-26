@@ -134,9 +134,22 @@ Cruised through 20, started to only slow down mid 20s. Was originally going to d
 ## 11/23
 Morning lift
 
-50 in 15 minutse OMEM
+50 in 15 minutes OMEM
 
 3 x 10
 4 x 5
 
 Used a stiff and straight bar, grip was much better and reduced fatigue. Using a wider grip was easier on the wrists.
+
+## 11/24
+Rest day.
+
+## 11/25
+Evening lift
+
+40 in 15 minutes OMEN
+
+3 x 10
+2 x 5
+
+Very easy day. Was still fatigued so none of the reps felt explosive but every rep was controlled and slow. Was starting each set sooner than a minute, could try mixing in faster intervals. Need to work on core engagment and leg stability to prevent swinging. 
