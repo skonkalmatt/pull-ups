@@ -153,3 +153,33 @@ Evening lift
 2 x 5
 
 Very easy day. Was still fatigued so none of the reps felt explosive but every rep was controlled and slow. Was starting each set sooner than a minute, could try mixing in faster intervals. Need to work on core engagment and leg stability to prevent swinging. 
+
+## 11/26
+Lifted but no pull ups.
+
+## 11/27
+Rest day. Thanksgiving
+
+## 11/28
+Rest day. Friendsgiving
+
+## 11/29
+Took day off. Back was still sore, think I over trained
+
+## 11/30
+Took day off, still kinda hungover
+
+## 12/1
+Lifted but no pull ups.
+
+## 12/2
+Evening lift
+
+40 in 10 minutes OMEN
+
+4 x 10
+
+Definitely felt the weight from thanksgiving. Felt fine though even though the bar was not great.
+
+## 12/3
+Rest day.
