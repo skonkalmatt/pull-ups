@@ -183,3 +183,21 @@ Definitely felt the weight from thanksgiving. Felt fine though even though the b
 
 ## 12/3
 Rest day.
+
+## 12/4
+Took the day off.
+
+## 12/5
+Evening lift
+
+40 in 10 minutes OMEN
+
+4 x 10
+
+Still felt pretty slow on these.
+
+## 12/6
+Rest day.
+
+## 12/7
+Rest day.
