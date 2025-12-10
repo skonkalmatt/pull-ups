@@ -201,3 +201,21 @@ Rest day.
 
 ## 12/7
 Rest day.
+
+## 12/8
+Evening lift.
+
+30 in 10 minutes OMEN
+
+3 x 10
+
+Very easy but didnt feel any sort of explosiveness.
+
+## 12/9
+Done after boxing.
+
+40 in 10 minutes OMEN
+
+4 x 10
+
+Still pretty easy, felt a little lighter since I started offically cutting.
