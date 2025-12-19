@@ -219,3 +219,42 @@ Done after boxing.
 4 x 10
 
 Still pretty easy, felt a little lighter since I started offically cutting.
+
+## 12/10
+Rest day, saunaed.
+
+## 12/11
+Evening lift.
+
+40 in 12 minutes OMEN
+
+4 x 10
+
+Not too bad was pushing myself at the end though
+
+## 12/12
+Rest day, hungover.
+
+## 12/13
+Hangover lift, no pullups.
+
+## 12/14
+Rested due to headache from headbanging at concert on thursday.
+
+## 12/15
+Rested again.
+
+## 12/16
+Boxing skills training.
+
+## 12/17
+Evening lift.
+
+40 in 10 minutes OMEN
+
+4 x 10
+
+Still pretty easy, felt a little lighter since I started offically cutting.
+
+## 12/18
+Kickboxing conditioning.
